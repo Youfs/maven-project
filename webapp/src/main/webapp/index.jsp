@@ -1,1 +1,1 @@
-Hello, Lol !
+Hello, wow !
